@@ -1,6 +1,8 @@
 ![divider](https://files.catbox.moe/iqqcun.png) 
 ![banner](https://files.catbox.moe/yohuci.png) 
 
+![](https://komarev.com/ghpvc/?username=virtusimperiums&color=687661&label=⦻killed)
+
 <p align="center"> ᴄᴀʟʟ ᴍᴇ ᴛᴏʙʏ ᴏʀ ᴄᴀɪɴᴇ | 18 | ʜᴇ ʜɪᴍ | ʏᴜᴍᴇ & ᴍᴜʟᴛɪꜰᴀɴᴅᴏᴍ
 
 <p align="center"> ʙᴀꜱɪᴄ ᴅɴɪ | ᴛᴍɴᴛ ᴅɴɪᴜꜰ | ᴘʀᴏ/ᴅᴀʀᴋꜱʜɪᴘ ᴅɴɪ 
