@@ -4,4 +4,6 @@ this thing is a wip btw come back later
 
 <p align="center"> toby/caine | 18 | he/him
 
-<p align="center">
+<p align="center"> 
+  
+[guns.lol](https://guns.lol/virtusimperium)
