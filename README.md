@@ -12,7 +12,7 @@
 
 <p align="center"> ᴍʏ ʟᴏᴠᴇʟʏ ꜰʀɪᴇɴᴅꜱ
 
-[alan](https://github.com/xde3vin) [zhenya](https://github.com/ZzhenyaA777) [mori](https://github.com/beauty-clown) [mars](https://github.com/zomsua) [lee](https://github.com/ultimateyearner) [calcifer & xeno](https://github.com/Calcifer204) [zack](https://github.com/zackingaround) 
+[alan](https://github.com/xde3vin) [zhenya](https://github.com/ZzhenyaA777) [mori](https://github.com/beauty-clown) [mars](https://github.com/zomsua) [lee](https://github.com/ultimateyearner) [calcifer & xeno](https://github.com/Calcifer204) [mac](https://github.com/madnessprojectnexus) [zack](https://github.com/zackingaround) [vin](https://github.com/myshghoul)
 
 ![divider](https://files.catbox.moe/iqqcun.png) 
     
