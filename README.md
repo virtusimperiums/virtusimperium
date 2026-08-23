@@ -6,4 +6,4 @@ this thing is a wip btw come back later
 
 <p align="center"> 
   
-[guns.lol](https://guns.lol/virtusimperium)
+[guns.lol](https://guns.lol/virtusimperium) [rentry](https://rentry.co/justcaine) [straw](https://virtusimperium.straw.page) [graphics](https://fluffle.cc/madnessresources) [atabook](https://rejectedmeistro.atabook.org/)
