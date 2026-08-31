@@ -25,5 +25,5 @@
 <p align="center"> mentioned in
 
 [pt-of-awesomeness](https://github.com/pt-of-awesomeness)
-
+![pic](https://files.catbox.moe/ucptrz.jpg)
 ![divider](https://files.catbox.moe/iqqcun.png)
